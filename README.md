@@ -6,3 +6,7 @@ Completing all required steps to optimize the profile for local search visibilit
 Ensuring accurate business information, including address, contact details, and hours of operation.
 Verifying the profile to establish credibility and enhance trust with potential customers.
 This initiative was aimed at improving the online presence of Duluxe, driving local traffic, and increasing customer engagement.
+
+
+URL: https://g.co/kgs/6aeudRm
+
